@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
