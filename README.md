@@ -1,1 +1,2 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
