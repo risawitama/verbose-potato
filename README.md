@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why can't a bicycle stand on its own? It's two-tired.
