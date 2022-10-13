@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## I was in an 80's band called the prevention. We were better than the cure.
