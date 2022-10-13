@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
