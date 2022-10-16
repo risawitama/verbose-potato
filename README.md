@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
