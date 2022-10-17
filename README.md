@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
