@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
