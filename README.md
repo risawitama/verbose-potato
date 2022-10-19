@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Where do hamburgers go to dance? The meat-ball.
