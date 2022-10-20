@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
