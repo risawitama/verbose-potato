@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Where do sheep go to get their hair cut? The baa-baa shop.
