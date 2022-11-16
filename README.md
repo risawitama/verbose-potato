@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
