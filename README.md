@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
