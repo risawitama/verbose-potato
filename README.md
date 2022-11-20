@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Me and my mates are in a band called Duvet. We're a cover band.
