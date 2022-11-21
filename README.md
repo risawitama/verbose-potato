@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why are graveyards so noisy? Because of all the coffin.
