@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
