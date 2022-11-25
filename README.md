@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## How many South Americans does it take to change a lightbulb? A Brazilian
