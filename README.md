@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Where does batman go to the bathroom? The batroom.
