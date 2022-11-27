@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Why don't sharks eat clowns?  Because they taste funny.
