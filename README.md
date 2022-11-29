@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I tried to write a chemistry joke, but could never get a reaction.
