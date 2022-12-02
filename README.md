@@ -1,1 +1,2 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
