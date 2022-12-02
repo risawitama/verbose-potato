@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## What did the calculator say to the student? You can count on me.
