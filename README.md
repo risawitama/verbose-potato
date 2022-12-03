@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
