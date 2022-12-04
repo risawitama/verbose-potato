@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
