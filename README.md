@@ -1,1 +1,3 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
