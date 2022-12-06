@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
