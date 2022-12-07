@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
