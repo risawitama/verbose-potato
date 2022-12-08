@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## People are making apocalypse jokes like there’s no tomorrow.
