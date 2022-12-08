@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
