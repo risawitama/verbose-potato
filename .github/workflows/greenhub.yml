@@ -11,13 +11,13 @@ jobs:
     steps:
        - name: Checkout
          uses: actions/checkout@main
-       - uses: styfle/cancel-workflow-action@0.9.1
-         name: "Cancel duplicate workflow runs"
+       - uses: styfle/cancel-workflow-action@main
+         name: "Cancel Duplicate Workflow Action Runs"
          with:
             all_but_latest: true
             access_token: ${{ github.token }}
        - name: Purge Workflow History
-         uses: Mattraks/delete-workflow-runs@v2
+         uses: Mattraks/delete-workflow-runs@main
          with:
            token: ${{ secrets.GH_TOKEN }}
            repository: ${{ github.repository }}
