@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
