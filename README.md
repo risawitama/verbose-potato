@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
