@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
