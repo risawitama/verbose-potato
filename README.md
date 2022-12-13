@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
