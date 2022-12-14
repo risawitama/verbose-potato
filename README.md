@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
