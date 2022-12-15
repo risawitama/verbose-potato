@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
