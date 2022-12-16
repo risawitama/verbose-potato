@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## You can't run through a camp site. You can only ran, because it's past tents.
