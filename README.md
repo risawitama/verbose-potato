@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
