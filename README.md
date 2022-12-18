@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
