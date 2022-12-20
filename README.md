@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
