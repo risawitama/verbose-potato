@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why are graveyards so noisy? Because of all the coffin.
