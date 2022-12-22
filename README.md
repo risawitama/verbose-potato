@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How are false teeth like stars? They come out at night!
