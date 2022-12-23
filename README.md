@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
