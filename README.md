@@ -1,1 +1,2 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
