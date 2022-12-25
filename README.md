@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I just got fired from a florist, apparently I took too many leaves.
