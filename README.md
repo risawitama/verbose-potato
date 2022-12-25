@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
