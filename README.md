@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
