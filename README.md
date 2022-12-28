@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## Why are skeletons so calm? Because nothing gets under their skin.
