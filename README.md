@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## How does a French skeleton say hello? Bone-jour.
