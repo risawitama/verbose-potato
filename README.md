@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What do you do on a remote island? Try and find the TV island it belongs to.
