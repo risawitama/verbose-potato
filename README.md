@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
