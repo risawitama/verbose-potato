@@ -1,1 +1,2 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## What is red and smells like blue paint?
+## Red paint!
