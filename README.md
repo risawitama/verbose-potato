@@ -1,1 +1,5 @@
-## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
+## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
+## 
+## “Sure thing” the bartender replies and asks “but what’s with the big pause?” 
+## 
+## The panda holds up his hands and says “I was born with them”
