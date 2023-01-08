@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## I used to hate facial hair, but then it grew on me.
