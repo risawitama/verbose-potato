@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Two peanuts were walking down the street. One was a salted.
