@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What did one plate say to the other plate? Dinner is on me!
