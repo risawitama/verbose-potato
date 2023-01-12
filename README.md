@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
