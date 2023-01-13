@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
