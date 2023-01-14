@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
