@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
