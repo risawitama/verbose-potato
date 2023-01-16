@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
