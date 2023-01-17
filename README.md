@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
