@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
