@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
