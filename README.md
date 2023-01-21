@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
