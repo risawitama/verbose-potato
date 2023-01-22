@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## How are false teeth like stars? They come out at night!
