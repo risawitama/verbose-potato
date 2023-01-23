@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
