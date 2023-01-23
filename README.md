@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
