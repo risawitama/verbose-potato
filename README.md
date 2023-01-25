@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## How come a man driving a train got struck by lightning? He was a good conductor.
