@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
