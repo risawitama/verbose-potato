@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
