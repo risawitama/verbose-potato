@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## I gave all my dead batteries away today, free of charge.
