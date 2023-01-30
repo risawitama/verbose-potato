@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## What do bees do after they are married? They go on a honeymoon.
