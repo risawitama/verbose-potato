@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Did you hear the joke about the wandering nun? She was a roman catholic.
