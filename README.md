@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What do you call your friend who stands in a hole? Phil.
