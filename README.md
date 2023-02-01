@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do fish live in salt water? Because pepper makes them sneeze!
