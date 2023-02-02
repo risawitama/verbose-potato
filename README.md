@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
