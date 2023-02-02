@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
