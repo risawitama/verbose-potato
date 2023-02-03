@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Which side of the chicken has more feathers? The outside.
