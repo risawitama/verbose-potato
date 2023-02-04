@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
