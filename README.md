@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
