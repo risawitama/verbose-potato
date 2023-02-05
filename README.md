@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
