@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
