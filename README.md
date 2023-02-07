@@ -1,5 +1,1 @@
-## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
-## 
-## “Sure thing” the bartender replies and asks “but what’s with the big pause?” 
-## 
-## The panda holds up his hands and says “I was born with them”
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
