@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## I used to think I was indecisive, but now I'm not sure.
