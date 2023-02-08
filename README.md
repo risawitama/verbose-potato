@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## How do locomotives know where they're going? Lots of training
