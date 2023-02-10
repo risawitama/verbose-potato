@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
