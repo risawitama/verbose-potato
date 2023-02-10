@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
