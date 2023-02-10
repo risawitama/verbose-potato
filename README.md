@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
