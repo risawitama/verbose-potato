@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What do you call a droid that takes the long way around? R2 detour.
