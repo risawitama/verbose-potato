@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Why do bees hum? Because they don't know the words.
