@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
