@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
