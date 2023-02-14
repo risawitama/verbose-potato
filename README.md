@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
