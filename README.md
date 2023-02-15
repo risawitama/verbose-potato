@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
