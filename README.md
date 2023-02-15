@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## I was in an 80's band called the prevention. We were better than the cure.
