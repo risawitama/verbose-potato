@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## I used to think I was indecisive, but now I'm not sure.
