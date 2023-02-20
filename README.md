@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
