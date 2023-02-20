@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
