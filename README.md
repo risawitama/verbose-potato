@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why can't a bicycle stand on its own? It's two-tired.
