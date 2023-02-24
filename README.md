@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
