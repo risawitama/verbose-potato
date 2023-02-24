@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What did the dog say to the two trees? Bark bark.
