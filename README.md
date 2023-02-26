@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
