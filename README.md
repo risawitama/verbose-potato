@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I thought about going on an all-almond diet. But that's just nuts.
