@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Have you heard about corduroy pillows?  They're making headlines!
