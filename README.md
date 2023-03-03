@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
