@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## I was thinking about moving to Moscow but there is no point Russian into things.
