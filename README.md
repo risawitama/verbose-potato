@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
