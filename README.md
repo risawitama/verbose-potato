@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Some people eat light bulbs. They say it's a nice light snack.
