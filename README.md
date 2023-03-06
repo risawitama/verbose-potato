@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
