@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
