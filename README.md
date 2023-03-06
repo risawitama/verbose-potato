@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
