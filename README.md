@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
