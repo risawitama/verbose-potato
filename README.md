@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
