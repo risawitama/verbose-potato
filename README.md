@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Where do young cows eat lunch? In the calf-ateria.
