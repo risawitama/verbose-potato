@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
