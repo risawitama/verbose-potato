@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
