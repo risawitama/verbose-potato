@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
