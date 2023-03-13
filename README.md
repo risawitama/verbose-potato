@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
