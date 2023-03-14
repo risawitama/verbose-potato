@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What do you get when you cross a snowman with a vampire? Frostbite.
