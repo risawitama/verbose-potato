@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## There's not really any training for garbagemen. They just pick things up as they go.
