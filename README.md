@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
