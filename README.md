@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
