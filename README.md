@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
