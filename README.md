@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why do fish live in salt water? Because pepper makes them sneeze!
