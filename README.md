@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
