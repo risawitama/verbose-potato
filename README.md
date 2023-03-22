@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What's the best thing about elevator jokes? They work on so many levels.
