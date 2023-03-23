@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## When is a door not a door? When it's ajar.
