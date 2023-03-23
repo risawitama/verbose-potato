@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
