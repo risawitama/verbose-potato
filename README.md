@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
