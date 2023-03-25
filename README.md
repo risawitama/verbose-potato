@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
