@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
