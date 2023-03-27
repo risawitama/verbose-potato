@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
