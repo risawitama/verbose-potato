@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Did you hear about the runner who was criticized? He just took it in stride
