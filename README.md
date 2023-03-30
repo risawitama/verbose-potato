@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
