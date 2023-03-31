@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## No matter how kind you are, German children are kinder.
