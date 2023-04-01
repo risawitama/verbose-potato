@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Why are fish so smart? Because they live in schools!
