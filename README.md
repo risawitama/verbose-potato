@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
