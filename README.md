@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
