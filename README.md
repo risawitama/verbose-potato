@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## I wouldn't buy anything with velcro. It's a total rip-off.
