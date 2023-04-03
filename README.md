@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
