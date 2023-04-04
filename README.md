@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## My dentist is the best, he even has a little plaque!
