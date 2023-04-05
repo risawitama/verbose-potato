@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
