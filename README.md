@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
