@@ -1,1 +1,2 @@
-## How many apples grow on a tree? All of them!
+## Why did the cookie cry?
+## Because his mother was a wafer so long
