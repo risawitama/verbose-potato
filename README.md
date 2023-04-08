@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## I couldn't get a reservation at the library. They were completely booked.
