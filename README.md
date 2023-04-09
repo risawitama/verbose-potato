@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
