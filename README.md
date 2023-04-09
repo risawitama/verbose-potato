@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## People are making apocalypse jokes like there’s no tomorrow.
