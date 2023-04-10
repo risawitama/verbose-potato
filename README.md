@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
