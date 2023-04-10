@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why do choirs keep buckets handy? So they can carry their tune
