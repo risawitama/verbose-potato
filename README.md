@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
