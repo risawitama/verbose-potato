@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## When is a door not a door? When it's ajar.
