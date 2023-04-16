@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Have you heard about corduroy pillows?  They're making headlines!
