@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
