@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## You know that cemetery up the road? People are dying to get in there.
