@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## To the person who stole my anti-depressant pills: I hope you're happy now.
