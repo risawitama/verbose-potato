@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## What do you call a droid that takes the long way around? R2 detour.
