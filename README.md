@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Shout out to my grandma, that's the only way she can hear.
