@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## I wouldn't buy anything with velcro. It's a total rip-off.
