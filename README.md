@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
