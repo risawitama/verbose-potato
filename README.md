@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
