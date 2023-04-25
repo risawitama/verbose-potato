@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why was the picture sent to prison? It was framed.
