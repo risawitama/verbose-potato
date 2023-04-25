@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Our wedding was so beautiful, even the cake was in tiers.
