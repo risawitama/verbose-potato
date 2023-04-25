@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I asked a frenchman if he played video games. He said "Wii"
