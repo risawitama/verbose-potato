@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
