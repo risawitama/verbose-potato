@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
