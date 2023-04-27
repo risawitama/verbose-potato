@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## I always wanted to look into why I procrastinate, but I keep putting it off. 
