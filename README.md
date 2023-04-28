@@ -1,1 +1,2 @@
-## How do locomotives know where they're going? Lots of training
+## What is red and smells like blue paint?
+## Red paint!
