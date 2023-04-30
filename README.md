@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why did the belt go to prison? He held up a pair of pants!
