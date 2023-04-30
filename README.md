@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What does a clock do when it's hungry? It goes back four seconds!
