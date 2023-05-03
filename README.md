@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What did one wall say to the other wall? I'll meet you at the corner!
