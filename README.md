@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
