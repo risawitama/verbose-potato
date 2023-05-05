@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## ‘Put the cat out’ … ‘I didn’t realize it was on fire
