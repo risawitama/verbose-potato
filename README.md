@@ -1,1 +1,1 @@
-## which flower is most fierce? Dandelion
+## Why was the strawberry sad? Its parents were in a jam.
