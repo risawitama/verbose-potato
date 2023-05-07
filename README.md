@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What did the fish say when it swam into a wall? Damn!
