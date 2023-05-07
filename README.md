@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
