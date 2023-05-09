@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
