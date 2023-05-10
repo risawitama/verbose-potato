@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
