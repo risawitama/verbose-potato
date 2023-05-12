@@ -1,1 +1,2 @@
-## What kind of tree fits in your hand? A palm tree!
+## What is red and smells like blue paint?
+## Red paint!
