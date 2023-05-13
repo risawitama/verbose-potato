@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I considered building the patio by myself. But I didn't have the stones.
