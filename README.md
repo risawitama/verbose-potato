@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
