@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
