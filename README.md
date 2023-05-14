@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
