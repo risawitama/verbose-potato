@@ -1,1 +1,2 @@
-## You can't trust a ladder. It will always let you down
+## What is the best way to carve?
+## Whittle by whittle.
