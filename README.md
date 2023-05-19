@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## How come the stadium got hot after the game? Because all of the fans left.
