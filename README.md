@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
