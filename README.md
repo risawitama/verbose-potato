@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What creature is smarter than a talking parrot? A spelling bee.
