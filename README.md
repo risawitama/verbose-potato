@@ -1,1 +1,2 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
