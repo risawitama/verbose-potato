@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
