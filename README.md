@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
