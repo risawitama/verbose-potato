@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
