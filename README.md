@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## How can you tell a vampire has a cold? They start coffin.
