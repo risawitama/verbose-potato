@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
