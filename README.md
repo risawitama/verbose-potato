@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I boiled a funny bone last night and had a laughing stock
