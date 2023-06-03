@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## My wife said I was immature. So I told her to get out of my fort.
