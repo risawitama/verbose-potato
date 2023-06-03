@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
