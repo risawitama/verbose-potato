@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Why do choirs keep buckets handy? So they can carry their tune
