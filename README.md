@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
