@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
