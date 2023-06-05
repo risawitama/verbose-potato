@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
