@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## I broke my finger at work today, on the other hand I'm completely fine.
