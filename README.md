@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
