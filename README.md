@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I tried to write a chemistry joke, but could never get a reaction.
