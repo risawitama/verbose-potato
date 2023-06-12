@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## You can't run through a camp site. You can only ran, because it's past tents.
