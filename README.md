@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
