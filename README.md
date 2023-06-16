@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
