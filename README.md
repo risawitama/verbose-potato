@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Have you heard about corduroy pillows?  They're making headlines!
