@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## How come the stadium got hot after the game? Because all of the fans left.
