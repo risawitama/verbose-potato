@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
