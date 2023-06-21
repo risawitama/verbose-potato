@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## My wife said I was immature. So I told her to get out of my fort.
