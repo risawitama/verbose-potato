@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## How do you teach a kid to climb stairs? There is a step by step guide.
