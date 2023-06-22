@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
