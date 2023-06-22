@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## How come a man driving a train got struck by lightning? He was a good conductor.
