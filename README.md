@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## I used to hate facial hair, but then it grew on me.
