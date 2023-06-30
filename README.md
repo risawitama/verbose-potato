@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## What has ears but cannot hear? A field of corn.
