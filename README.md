@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
