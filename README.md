@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
