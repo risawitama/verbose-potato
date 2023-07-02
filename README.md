@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
