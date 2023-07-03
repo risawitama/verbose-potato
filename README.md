@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
