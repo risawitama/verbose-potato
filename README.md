@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Where’s the bin? Dad: I haven’t been anywhere!
