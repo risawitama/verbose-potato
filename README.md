@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
