@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
