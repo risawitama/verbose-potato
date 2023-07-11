@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
