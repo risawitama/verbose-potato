@@ -1,1 +1,2 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## What is the least spoken language in the world?
+## Sign Language
