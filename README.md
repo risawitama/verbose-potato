@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## I’m on a whiskey diet. I’ve lost three days already.
