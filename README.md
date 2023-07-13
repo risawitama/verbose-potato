@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
