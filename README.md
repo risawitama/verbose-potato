@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
