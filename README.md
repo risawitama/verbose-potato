@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
