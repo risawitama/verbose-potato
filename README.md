@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
