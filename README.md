@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
