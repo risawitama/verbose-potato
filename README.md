@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What does an angry pepper do? It gets jalapeño face.
