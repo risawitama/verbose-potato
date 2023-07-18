@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Some people eat light bulbs. They say it's a nice light snack.
