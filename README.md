@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## I used to work in a shoe recycling shop. It was sole destroying.
