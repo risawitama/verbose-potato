@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
