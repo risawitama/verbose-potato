@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why do we tell actors to “break a leg?” Because every play has a cast.
