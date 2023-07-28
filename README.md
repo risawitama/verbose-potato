@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## How much does a hipster weigh? An instagram.
