@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## R.I.P. boiled water. You will be mist.
