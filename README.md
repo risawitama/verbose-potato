@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
