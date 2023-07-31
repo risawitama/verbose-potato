@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
