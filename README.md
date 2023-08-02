@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Leather is great for sneaking around because it's made of hide.
