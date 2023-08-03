@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
