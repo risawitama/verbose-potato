@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
