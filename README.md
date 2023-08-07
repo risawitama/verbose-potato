@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
