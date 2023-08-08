@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
