@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
