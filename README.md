@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
