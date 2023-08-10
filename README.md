@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## There's not really any training for garbagemen. They just pick things up as they go.
