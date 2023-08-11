@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
