@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## How can you tell a vampire has a cold? They start coffin.
