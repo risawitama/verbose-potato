@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
