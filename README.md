@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Our wedding was so beautiful, even the cake was in tiers.
