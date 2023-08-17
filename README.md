@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Did you hear about the runner who was criticized? He just took it in stride
