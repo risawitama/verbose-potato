@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
