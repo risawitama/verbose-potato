@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What did the digital clock say to the grandfather clock? Look, no hands!
