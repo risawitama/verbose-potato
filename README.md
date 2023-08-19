@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Did you know that protons have mass? I didn't even know they were catholic.
