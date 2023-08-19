@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## The best time on a clock is 6:30--hands down.
