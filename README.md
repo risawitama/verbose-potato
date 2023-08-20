@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
