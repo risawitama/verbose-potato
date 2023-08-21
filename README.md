@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
