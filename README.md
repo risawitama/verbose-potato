@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why did the melons plan a big wedding? Because they cantaloupe!
