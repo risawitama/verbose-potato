@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## When is a door not a door? When it's ajar.
