@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why did the clown have neck pain? - Because he slept funny
