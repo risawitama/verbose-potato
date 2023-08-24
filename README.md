@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
