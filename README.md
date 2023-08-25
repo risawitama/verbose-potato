@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
