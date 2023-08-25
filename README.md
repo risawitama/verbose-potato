@@ -1,1 +1,2 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## What do you do when you see a space man?
+## Park your car, man.
