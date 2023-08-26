@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What do you get hanging from Apple trees? Sore arms.
