@@ -1,1 +1,3 @@
-## Toasters were the first form of pop-up notifications.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
