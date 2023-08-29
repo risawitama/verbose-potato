@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Animal Fact #25: Most bobcats are not named bob.
