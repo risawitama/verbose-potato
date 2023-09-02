@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## I wouldn't buy anything with velcro. It's a total rip-off.
