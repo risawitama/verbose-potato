@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
