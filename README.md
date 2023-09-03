@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why did the feline fail the lie detector test? Because he be lion.
