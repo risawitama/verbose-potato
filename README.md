@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
