@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
