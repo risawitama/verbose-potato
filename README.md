@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## What did one wall say to the other wall? I'll meet you at the corner!
