@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
