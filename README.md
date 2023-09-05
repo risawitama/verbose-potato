@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
