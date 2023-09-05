@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
