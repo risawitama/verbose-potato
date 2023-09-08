@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
