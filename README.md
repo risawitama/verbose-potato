@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
