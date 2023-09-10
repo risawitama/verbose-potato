@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
