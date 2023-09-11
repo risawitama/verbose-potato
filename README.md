@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## I got an A on my origami assignment when I turned my paper into my teacher
