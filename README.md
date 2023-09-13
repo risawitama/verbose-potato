@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## What did one snowman say to the other snow man? Do you smell carrot?
