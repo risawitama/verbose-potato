@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## I was thinking about moving to Moscow but there is no point Russian into things.
