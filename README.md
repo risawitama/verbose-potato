@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
