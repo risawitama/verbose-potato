@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
