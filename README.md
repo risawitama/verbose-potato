@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
