@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## How do hens stay fit? They always egg-cercise!
