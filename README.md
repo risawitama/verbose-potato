@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why did the m&m go to school? Because it wanted to be a Smartie!
