@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
