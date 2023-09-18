@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
