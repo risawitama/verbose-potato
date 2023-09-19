@@ -1,1 +1,3 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
