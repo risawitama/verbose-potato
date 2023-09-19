@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
