@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What do you call a guy lying on your doorstep? Matt.
