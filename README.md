@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
