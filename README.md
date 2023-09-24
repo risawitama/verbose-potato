@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
