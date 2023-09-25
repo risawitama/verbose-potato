@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I was thinking about moving to Moscow but there is no point Russian into things.
