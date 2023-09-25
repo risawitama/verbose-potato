@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
