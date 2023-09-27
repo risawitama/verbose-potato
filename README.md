@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
