@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I thought about going on an all-almond diet. But that's just nuts.
