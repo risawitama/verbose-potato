@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
