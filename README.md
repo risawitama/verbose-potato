@@ -1,1 +1,2 @@
-## Two dyslexics walk into a bra.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
