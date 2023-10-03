@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What do computers and air conditioners have in common? They both become useless when you open windows.
