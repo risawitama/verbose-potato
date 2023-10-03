@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
