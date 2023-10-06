@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## How do you make Lady Gaga cry? Poker face. 
