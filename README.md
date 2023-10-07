@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
