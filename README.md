@@ -1,1 +1,2 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why did the cookie cry?
+## Because his mother was a wafer so long
