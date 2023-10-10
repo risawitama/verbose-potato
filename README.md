@@ -1,1 +1,2 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
