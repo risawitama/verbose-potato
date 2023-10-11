@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## How do you get two whales in a car? Start in England and drive West.
