@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
