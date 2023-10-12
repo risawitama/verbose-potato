@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
