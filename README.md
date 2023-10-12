@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
