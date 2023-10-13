@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
