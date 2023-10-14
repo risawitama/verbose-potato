@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What’s E.T. short for? He’s only got little legs.
