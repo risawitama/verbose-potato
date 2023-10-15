@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Shout out to my grandma, that's the only way she can hear.
