@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Slept like a log last night … woke up in the fireplace.
