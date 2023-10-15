@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why do ducks make great detectives? They always quack the case.
