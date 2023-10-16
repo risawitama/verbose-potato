@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
