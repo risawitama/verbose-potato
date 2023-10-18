@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
