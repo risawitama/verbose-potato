@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What did the Red light say to the Green light? Don't look at me I'm changing!
