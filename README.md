@@ -1,1 +1,2 @@
-## I used to work for an origami company but they folded.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
