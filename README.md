@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
