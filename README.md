@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Why do ducks make great detectives? They always quack the case.
