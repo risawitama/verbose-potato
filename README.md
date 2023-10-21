@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
