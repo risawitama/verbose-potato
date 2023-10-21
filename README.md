@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
