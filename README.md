@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
