@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
