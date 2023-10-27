@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## How do you get two whales in a car? Start in England and drive West.
