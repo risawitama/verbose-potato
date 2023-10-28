@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## How are false teeth like stars? They come out at night!
