@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
