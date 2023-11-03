@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## What did the ocean say to the shore? Nothing, it just waved.
