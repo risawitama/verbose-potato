@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## I decided to sell my Hoover… well it was just collecting dust.
