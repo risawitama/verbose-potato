@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What do you do when your bunny gets wet? You get your hare dryer.
