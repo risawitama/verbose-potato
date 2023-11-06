@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What did the shy pebble wish for? That she was a little boulder.
