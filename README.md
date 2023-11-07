@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## I boiled a funny bone last night and had a laughing stock
