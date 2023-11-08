@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why was ten scared of seven? Because seven ate nine.
