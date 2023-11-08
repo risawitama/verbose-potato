@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Don't trust atoms. They make up everything.
