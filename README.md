@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What did the fish say when it swam into a wall? Damn!
