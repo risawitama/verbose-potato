@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## What did the shy pebble wish for? That she was a little boulder.
