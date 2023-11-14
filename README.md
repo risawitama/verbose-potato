@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
