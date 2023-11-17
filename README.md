@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
