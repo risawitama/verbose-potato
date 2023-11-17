@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
