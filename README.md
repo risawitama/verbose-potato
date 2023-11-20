@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
