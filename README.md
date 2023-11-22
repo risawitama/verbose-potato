@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## This morning I was wondering where the sun was, but then it dawned on me.
