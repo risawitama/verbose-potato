@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
