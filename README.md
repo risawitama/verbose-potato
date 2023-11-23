@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
