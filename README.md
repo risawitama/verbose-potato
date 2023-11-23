@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
