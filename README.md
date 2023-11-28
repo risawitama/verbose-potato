@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## “My Dog has no nose.” “How does he smell?” “Awful”
