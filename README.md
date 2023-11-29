@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
