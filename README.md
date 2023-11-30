@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
