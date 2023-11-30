@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why do birds fly south for the winter? Because it's too far to walk.
