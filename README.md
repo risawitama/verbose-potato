@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why was the strawberry sad? Its parents were in a jam.
