@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## How come the stadium got hot after the game? Because all of the fans left.
