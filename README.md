@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What do you call a duck that gets all A's? A wise quacker.
