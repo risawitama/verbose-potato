@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
