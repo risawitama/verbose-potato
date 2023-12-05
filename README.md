@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
