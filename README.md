@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why don't eggs tell jokes? They'd crack each other up
