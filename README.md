@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## What did the calculator say to the student? You can count on me.
