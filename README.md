@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## I used to work for a soft drink can crusher. It was soda pressing.
