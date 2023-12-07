@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
