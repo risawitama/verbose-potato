@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
