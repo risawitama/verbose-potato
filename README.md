@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Mountains aren't just funny, they are hill areas
