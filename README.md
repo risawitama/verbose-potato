@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Leather is great for sneaking around because it's made of hide.
