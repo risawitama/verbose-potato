@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
