@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
