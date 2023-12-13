@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
