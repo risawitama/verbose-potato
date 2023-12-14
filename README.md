@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
