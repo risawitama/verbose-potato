@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## It doesn't matter how much you push the envelope. It will still be stationary.
