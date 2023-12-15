@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
