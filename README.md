@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
