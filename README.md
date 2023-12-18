@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I was thinking about moving to Moscow but there is no point Russian into things.
