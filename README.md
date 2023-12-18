@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
