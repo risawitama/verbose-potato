@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Conjunctivitis.com – now that’s a site for sore eyes.
