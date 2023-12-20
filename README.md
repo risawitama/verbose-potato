@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
