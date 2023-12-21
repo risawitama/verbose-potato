@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
