@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Why did the feline fail the lie detector test? Because he be lion.
