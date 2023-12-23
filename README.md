@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
