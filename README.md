@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
