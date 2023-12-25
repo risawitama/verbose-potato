@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
