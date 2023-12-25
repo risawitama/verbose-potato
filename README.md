@@ -1,1 +1,1 @@
-## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
+## This is my step ladder. I never knew my real ladder.
