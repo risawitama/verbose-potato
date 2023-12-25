@@ -1,1 +1,2 @@
-## This is my step ladder. I never knew my real ladder.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
