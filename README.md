@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
