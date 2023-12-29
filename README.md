@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What do bees do after they are married? They go on a honeymoon.
