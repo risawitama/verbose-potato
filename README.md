@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## What don't watermelons get married? Because they cantaloupe.
