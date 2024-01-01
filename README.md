@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
