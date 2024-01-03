@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What creature is smarter than a talking parrot? A spelling bee.
