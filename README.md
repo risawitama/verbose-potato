@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
