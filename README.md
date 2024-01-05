@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Want to hear a joke about construction? Nah, I'm still working on it.
