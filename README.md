@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why are snake races so exciting? They're always neck and neck.
