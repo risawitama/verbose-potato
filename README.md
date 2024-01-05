@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
