@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## New atoms frequently lose electrons when they fail to keep an ion them.
