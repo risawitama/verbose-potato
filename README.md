@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
