@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
