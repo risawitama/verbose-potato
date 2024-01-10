@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
