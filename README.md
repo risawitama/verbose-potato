@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What do you call a duck that gets all A's? A wise quacker.
