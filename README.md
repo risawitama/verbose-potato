@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
