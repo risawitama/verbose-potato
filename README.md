@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
