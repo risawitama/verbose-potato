@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## Why did the knife dress up in a suit? Because it wanted to look sharp
