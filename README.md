@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why do bees have sticky hair? Because they use honey combs!
