@@ -1,1 +1,3 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
