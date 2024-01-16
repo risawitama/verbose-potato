@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
