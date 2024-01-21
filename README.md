@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
