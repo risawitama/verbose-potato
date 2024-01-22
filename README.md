@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
