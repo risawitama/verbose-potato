@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
