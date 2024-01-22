@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
