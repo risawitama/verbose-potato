@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
