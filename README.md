@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## What do you call two guys hanging out by your window? Kurt & Rod.
