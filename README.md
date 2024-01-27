@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
