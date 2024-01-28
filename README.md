@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
