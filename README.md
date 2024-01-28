@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## My New Years resolution is to stop leaving things so late.
