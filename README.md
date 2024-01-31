@@ -1,1 +1,2 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
