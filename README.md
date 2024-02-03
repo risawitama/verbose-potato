@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## When is a door not a door? When it's ajar.
