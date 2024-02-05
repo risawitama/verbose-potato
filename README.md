@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
