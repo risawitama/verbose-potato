@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
