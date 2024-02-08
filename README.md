@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Me and my mates are in a band called Duvet. We're a cover band.
