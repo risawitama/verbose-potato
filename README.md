@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
