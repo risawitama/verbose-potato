@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why did the tree go to the dentist? It needed a root canal.
