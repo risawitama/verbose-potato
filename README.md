@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
