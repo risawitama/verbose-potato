@@ -1,1 +1,1 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## Don't tell secrets in corn fields. Too many ears around.
