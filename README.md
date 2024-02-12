@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What's black and white and read all over? The newspaper.
