@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## How many South Americans does it take to change a lightbulb? A Brazilian
