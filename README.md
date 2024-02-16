@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## It doesn't matter how much you push the envelope. It will still be stationary.
