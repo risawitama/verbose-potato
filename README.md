@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What did the mountain climber name his son? Cliff.
