@@ -1,1 +1,2 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What is the best way to carve?
+## Whittle by whittle.
