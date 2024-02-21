@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What did the shy pebble wish for? That she was a little boulder.
