@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What's red and bad for your teeth? A Brick.
