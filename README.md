@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
