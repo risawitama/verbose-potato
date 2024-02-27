@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Why can't eggs have love? They will break up too soon.
