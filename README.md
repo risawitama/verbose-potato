@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
