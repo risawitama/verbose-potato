@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What did one nut say as he chased another nut?  I'm a cashew!
