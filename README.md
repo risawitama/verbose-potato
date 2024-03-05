@@ -1,1 +1,1 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
