@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## I always wanted to look into why I procrastinate, but I keep putting it off. 
