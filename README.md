@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
