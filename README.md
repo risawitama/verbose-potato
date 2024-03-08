@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## You know that cemetery up the road? People are dying to get in there.
