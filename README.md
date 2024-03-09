@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
