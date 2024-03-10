@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## How does a dyslexic poet write? Inverse.
