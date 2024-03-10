@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
