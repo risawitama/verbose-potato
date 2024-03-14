@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
