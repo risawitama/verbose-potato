@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
