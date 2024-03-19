@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
