@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## My sea sickness comes in waves.
