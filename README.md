@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
