@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
