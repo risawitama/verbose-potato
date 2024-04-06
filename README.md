@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What did the ocean say to the shore? Nothing, it just waved.
