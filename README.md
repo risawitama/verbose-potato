@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
