@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Two silk worms had a race. They ended up in a tie.
