@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
