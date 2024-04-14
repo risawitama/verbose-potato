@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## How do you make a hankie dance? Put a little boogie in it.
