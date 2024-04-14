@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
