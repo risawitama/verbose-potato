@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
