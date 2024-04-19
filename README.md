@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Two guys walked into a bar, the third one ducked.
