@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
