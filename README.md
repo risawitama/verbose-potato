@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
