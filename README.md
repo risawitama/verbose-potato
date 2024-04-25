@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
