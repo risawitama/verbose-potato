@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
