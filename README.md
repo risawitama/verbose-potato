@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## What's a ninja's favorite type of shoes? Sneakers!
