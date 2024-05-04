@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What do you get when you cross a snowman with a vampire? Frostbite.
