@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## How do you get two whales in a car? Start in England and drive West.
