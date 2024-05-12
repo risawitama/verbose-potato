@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
