@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
