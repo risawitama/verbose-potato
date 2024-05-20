@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Atheism is a non-prophet organisation.
