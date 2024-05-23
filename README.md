@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## I boiled a funny bone last night and had a laughing stock
