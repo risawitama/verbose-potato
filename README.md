@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
