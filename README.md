@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
