@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## What animal is always at a game of cricket? A bat.
