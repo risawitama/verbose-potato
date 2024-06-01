@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## I'm glad I know sign language, it's pretty handy.
