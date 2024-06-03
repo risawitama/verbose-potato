@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
