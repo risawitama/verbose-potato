@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
