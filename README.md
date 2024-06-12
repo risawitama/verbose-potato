@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I invented a new word! Plagiarism!
