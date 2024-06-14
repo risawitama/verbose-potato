@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
