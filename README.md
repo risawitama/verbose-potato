@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
