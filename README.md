@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## I was in an 80's band called the prevention. We were better than the cure.
