@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
