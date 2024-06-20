@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Writing with a broken pencil is pointless.
