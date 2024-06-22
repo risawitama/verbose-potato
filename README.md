@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
