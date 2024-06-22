@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Why is the ocean always blue? Because the shore never waves back.
