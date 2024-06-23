@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
