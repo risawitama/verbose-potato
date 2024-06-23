@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
