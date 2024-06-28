@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
