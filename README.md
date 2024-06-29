@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why do ducks make great detectives? They always quack the case.
