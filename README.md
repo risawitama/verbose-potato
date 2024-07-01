@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Whoever invented the knock-knock joke should get a no bell prize.
