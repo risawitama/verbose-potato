@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Atheism is a non-prophet organisation.
