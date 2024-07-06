@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Where did you learn to make ice cream? Sunday school.
