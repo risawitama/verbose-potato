@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
