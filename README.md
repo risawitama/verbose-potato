@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## "I'll call you later." Don't call me later, call me Dad.
