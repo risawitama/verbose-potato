@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I just got fired from a florist, apparently I took too many leaves.
