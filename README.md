@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
