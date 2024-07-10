@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why do pirates not know the alphabet? They always get stuck at "C".
