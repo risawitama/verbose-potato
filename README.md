@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
