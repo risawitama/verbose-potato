@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
