@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
