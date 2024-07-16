@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
