@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
