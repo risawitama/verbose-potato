@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
