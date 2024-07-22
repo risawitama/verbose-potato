@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I used to hate facial hair, but then it grew on me.
