@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
