@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
