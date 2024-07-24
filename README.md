@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
