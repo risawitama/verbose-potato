@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## How come a man driving a train got struck by lightning? He was a good conductor.
