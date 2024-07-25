@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
