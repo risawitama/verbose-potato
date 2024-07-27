@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
