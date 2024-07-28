@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
