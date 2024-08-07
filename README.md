@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How can you tell a vampire has a cold? They start coffin.
