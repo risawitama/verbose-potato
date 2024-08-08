@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
