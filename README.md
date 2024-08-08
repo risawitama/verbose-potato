@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What don't watermelons get married? Because they cantaloupe.
