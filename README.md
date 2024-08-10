@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
