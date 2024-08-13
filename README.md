@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Shout out to my grandma, that's the only way she can hear.
