@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## How does a French skeleton say hello? Bone-jour.
