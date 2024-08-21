@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Animal Fact #25: Most bobcats are not named bob.
