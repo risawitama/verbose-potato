@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What has ears but cannot hear? A field of corn.
