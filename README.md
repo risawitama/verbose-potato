@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## How do you find Will Smith in the snow?  Look for fresh prints.
