@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
