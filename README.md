@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
