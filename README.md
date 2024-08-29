@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## There's not really any training for garbagemen. They just pick things up as they go.
