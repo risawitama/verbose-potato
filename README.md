@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why do bees hum? Because they don't know the words.
