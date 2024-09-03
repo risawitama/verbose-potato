@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
