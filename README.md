@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## What do you call a dad that has fallen through the ice? A Popsicle.
