@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## How much does a hipster weigh? An instagram.
