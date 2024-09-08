@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What did the ocean say to the shore? Nothing, it just waved.
