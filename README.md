@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## I was in an 80's band called the prevention. We were better than the cure.
