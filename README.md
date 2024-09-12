@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
