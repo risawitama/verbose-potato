@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
