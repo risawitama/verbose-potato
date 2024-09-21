@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
