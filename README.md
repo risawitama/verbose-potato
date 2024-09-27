@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## What did Yoda say when he saw himself in 4K? "HDMI"
