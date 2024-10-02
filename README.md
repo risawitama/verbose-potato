@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why do cows wear bells? Because their horns don't work.
