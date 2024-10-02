@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why do fish live in salt water? Because pepper makes them sneeze!
