@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Where do sheep go to get their hair cut? The baa-baa shop.
