@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Don't tell secrets in corn fields. Too many ears around.
