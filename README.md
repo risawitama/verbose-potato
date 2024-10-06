@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Velcro… What a rip-off.
