@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
