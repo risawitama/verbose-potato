@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
