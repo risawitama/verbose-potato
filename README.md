@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
