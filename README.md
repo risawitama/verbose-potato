@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
