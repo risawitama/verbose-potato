@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why do bears have hairy coats? Fur protection.
