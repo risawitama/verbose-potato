@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Without geometry life is pointless.
