@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What do you call a group of disorganized cats? A cat-tastrophe.
