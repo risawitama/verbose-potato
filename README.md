@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
