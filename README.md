@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
