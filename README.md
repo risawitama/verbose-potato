@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
