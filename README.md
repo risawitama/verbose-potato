@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
