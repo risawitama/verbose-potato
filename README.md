@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What’s E.T. short for? He’s only got little legs.
