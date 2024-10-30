@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you call a cow with two legs? Lean beef.
