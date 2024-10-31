@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Do you know where you can get chicken broth in bulk? The stock market.
