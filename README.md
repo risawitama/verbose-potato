@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
