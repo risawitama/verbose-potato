@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## I wanted to be a tailor but I didn't suit the job
