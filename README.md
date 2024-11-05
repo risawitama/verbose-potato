@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
