@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## How was the snow globe feeling after the storm? A little shaken.
