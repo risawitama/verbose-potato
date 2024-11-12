@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
