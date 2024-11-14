@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Dad, can you put my shoes on? I don't think they'll fit me.
