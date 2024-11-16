@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
