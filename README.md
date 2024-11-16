@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
