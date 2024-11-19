@@ -1,1 +1,2 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
