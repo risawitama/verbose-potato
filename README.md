@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
