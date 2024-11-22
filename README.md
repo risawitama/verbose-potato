@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Have you heard of the band 1023MB? They haven't got a gig yet.
