@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
