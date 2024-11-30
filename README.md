@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## Why are mummys scared of vacation? They're afraid to unwind.
