@@ -19,7 +19,7 @@ jobs:
        - name: Purge Workflow History
          uses: Mattraks/delete-workflow-runs@main
          with:
-           token: ${{ secrets.GH_TOKEN }}
+           token: ${{ github.token }}
            repository: ${{ github.repository }}
            retain_days: 0
            keep_minimum_runs: 0
@@ -42,4 +42,4 @@ jobs:
          with:
           force: true
           directory: "."
-          github_token: ${{ secrets.GH_TOKEN }}
+          github_token: ${{ github.token }}
