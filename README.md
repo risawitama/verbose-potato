@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What do you call an alligator in a vest? An in-vest-igator!
