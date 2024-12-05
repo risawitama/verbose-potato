@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
