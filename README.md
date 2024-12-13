@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
