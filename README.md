@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
