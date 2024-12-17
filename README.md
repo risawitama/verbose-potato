@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
