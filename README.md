@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
