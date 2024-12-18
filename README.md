@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Want to hear my pizza joke? Never mind, it's too cheesy.
