@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
