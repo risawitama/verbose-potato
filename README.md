@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
