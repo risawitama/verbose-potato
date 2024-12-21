@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
