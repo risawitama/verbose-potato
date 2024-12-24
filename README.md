@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
