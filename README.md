@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
