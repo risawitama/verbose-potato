@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What did one wall say to the other wall? I'll meet you at the corner!
