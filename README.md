@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
