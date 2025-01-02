@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## New atoms frequently lose electrons when they fail to keep an ion them.
