@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
