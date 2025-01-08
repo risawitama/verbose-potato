@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
