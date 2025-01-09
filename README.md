@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Geology rocks, but Geography is where it's at!
