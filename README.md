@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
