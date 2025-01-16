@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What's black and white and read all over? The newspaper.
