@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
