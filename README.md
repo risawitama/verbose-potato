@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I had a dream that I was a muffler last night. I woke up exhausted!
