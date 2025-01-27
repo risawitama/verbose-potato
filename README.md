@@ -1,1 +1,3 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
