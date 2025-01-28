@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Two peanuts were walking down the street. One was a salted
