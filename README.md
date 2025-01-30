@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What does a female snake use for support? A co-Bra!
