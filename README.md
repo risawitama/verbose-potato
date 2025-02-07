@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
