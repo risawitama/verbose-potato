@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why are mummys scared of vacation? They're afraid to unwind.
