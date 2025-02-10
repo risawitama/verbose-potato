@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
