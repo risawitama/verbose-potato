@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
