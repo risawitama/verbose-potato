@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## This morning I was wondering where the sun was, but then it dawned on me.
