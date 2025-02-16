@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
