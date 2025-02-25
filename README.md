@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
