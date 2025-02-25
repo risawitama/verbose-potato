@@ -1,1 +1,2 @@
-## What did the piece of bread say to the knife? Butter me up.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
