@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
