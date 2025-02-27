@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Have you heard about corduroy pillows?  They're making headlines!
