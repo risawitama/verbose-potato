@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Atheism is a non-prophet organisation.
