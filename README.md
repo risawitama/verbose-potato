@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## People are making apocalypse jokes like there’s no tomorrow.
