@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What do you call a boomerang that won't come back? A stick.
