@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I used to be a banker, but I lost interest.
