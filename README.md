@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
