@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## What do you call two guys hanging out by your window? Kurt & Rod.
