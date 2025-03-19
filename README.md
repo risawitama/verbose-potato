@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## How do locomotives know where they're going? Lots of training
