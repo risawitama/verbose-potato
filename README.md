@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## I considered building the patio by myself. But I didn't have the stones.
