@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
