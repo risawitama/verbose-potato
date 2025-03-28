@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Where do rabbits go after they get married? On a bunny-moon.
