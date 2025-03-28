@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
