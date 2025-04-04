@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
