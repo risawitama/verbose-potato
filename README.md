@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
