@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
