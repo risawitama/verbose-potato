@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Where do you learn to make banana splits? At sundae school.
