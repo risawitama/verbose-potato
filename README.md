@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
