@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What did one plate say to the other plate? Dinner is on me!
