@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## When is a door not a door? When it's ajar.
