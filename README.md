@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
