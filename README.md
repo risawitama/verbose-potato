@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What do you call a boomerang that won't come back? A stick.
