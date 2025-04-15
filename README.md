@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Some people eat light bulbs. They say it's a nice light snack.
