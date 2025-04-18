@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
