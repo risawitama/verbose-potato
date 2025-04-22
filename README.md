@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
