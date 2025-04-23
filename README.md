@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Me and my mates are in a band called Duvet. We're a cover band.
