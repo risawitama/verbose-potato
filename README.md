@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Coffee has a tough time at my house, every morning it gets mugged.
