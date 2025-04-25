@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## How do you teach a kid to climb stairs? There is a step by step guide.
