@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Thanks for explaining the word "many" to me. It means a lot.
