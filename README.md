@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What did one nut say as he chased another nut?  I'm a cashew!
