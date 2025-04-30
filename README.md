@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
