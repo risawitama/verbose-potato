@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
