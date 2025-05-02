@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
