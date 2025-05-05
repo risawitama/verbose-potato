@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
