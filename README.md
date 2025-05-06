@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Whoever invented the knock-knock joke should get a no bell prize.
