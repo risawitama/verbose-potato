@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I accidentally took my cats meds last night. Don’t ask meow.
