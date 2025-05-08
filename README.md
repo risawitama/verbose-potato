@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Where do rabbits go after they get married? On a bunny-moon.
