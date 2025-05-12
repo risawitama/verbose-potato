@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
