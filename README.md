@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Conjunctivitis.com – now that’s a site for sore eyes.
