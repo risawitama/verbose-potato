@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
