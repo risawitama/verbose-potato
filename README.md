@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why did the octopus beat the shark in a fight? Because it was well armed.
