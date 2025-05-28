@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Leather is great for sneaking around because it's made of hide.
