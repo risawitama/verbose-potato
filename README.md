@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What do you call an alligator in a vest? An in-vest-igator!
