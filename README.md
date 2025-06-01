@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why did the tomato blush? Because it saw the salad dressing.
