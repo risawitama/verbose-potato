@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why are mummys scared of vacation? They're afraid to unwind.
