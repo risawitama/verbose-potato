@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
