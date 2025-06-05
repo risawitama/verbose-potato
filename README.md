@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why don't sharks eat clowns?  Because they taste funny.
