@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
