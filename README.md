@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
