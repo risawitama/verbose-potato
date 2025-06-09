@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
