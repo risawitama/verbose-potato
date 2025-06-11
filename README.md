@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Why do pirates not know the alphabet? They always get stuck at "C".
