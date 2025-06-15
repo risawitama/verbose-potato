@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## “My Dog has no nose.” “How does he smell?” “Awful”
