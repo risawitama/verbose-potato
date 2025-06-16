@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
