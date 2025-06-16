@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What kind of pants do ghosts wear? Boo jeans.
