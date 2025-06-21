@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## How can you tell a vampire has a cold? They start coffin.
