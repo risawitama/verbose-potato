@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## I had a dream that I was a muffler last night. I woke up exhausted!
