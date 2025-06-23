@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
