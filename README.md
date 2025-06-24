@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
