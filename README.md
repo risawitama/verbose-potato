@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
