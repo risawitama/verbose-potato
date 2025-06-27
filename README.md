@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
