@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
