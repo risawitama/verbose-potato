@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
