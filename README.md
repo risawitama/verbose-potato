@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
