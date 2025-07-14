@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
