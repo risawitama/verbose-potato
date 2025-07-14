@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What's a ninja's favorite type of shoes? Sneakers!
