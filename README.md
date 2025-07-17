@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
