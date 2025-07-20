@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why didn’t the orange win the race? It ran out of juice.
