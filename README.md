@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why are skeletons so calm? Because nothing gets under their skin.
