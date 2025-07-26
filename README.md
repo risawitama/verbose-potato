@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
