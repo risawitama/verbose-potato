@@ -1,1 +1,3 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
