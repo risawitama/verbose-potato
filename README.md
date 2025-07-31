@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
