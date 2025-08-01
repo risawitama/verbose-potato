@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Want to hear my pizza joke? Never mind, it's too cheesy.
