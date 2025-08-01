@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
