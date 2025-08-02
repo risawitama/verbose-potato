@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
