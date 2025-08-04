@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
