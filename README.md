@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
