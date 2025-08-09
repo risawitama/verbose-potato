@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## My dentist is the best, he even has a little plaque!
