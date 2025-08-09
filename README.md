@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
