@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why do bears have hairy coats? Fur protection.
