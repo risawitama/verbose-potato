@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
