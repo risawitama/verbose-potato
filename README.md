@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Shout out to my grandma, that's the only way she can hear.
