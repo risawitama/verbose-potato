@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why can't a bicycle stand on its own? It's two-tired.
