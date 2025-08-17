@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
