@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
