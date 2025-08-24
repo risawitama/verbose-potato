@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
