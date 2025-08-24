@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
