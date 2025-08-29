@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
