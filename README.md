@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why was the strawberry sad? Its parents were in a jam.
