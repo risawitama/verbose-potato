@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## How do you find Will Smith in the snow?  Look for fresh prints.
