@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
