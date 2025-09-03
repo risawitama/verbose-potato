@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Ever wondered why bees hum? It's because they don't know the words.
