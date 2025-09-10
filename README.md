@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
