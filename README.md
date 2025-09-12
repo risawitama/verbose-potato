@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## How come the stadium got hot after the game? Because all of the fans left.
