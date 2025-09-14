@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## A cannibal is someone who is fed up with people.
