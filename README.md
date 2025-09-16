@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why do crabs never give to charity? Because they’re shellfish.
