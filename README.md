@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## To be Frank, I'd have to change my name.
