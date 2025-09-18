@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## What did the dog say to the two trees? Bark bark.
