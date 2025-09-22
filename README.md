@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## This furniture store keeps emailing me, all I wanted was one night stand!
