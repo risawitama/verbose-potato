@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
