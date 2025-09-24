@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What did one wall say to the other wall? I'll meet you at the corner!
