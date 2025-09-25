@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
