@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
