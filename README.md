@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## what do you call a dog that can do magic tricks? a labracadabrador
