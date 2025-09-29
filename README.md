@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## How come a man driving a train got struck by lightning? He was a good conductor.
