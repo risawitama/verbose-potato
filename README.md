@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
