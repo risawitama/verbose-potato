@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
