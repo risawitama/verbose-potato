@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
