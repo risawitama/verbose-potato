@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
