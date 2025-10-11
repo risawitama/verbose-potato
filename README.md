@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
