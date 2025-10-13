@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Why didn’t the skeleton cross the road? Because he had no guts.
