@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## If I could name myself after any Egyptian god, I'd be Set.
