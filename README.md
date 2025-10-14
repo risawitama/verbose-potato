@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I'd like to start a diet, but I've got too much on my plate right now.
