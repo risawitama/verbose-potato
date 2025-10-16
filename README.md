@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
