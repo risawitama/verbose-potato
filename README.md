@@ -1,1 +1,1 @@
-## Camping is intense.
+## Why do cows wear bells? Because their horns don't work.
