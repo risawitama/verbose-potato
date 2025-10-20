@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## How come the stadium got hot after the game? Because all of the fans left.
