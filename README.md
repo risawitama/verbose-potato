@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## What do you call a droid that takes the long way around? R2 detour.
