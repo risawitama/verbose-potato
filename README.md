@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
