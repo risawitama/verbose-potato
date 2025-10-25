@@ -1,1 +1,2 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
