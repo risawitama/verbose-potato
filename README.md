@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
