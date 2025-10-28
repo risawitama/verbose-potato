@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## How do the trees get on the internet? They log on.
