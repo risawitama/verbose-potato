@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I used to be addicted to soap, but I'm clean now.
