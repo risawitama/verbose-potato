@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Why do cows wear bells? Because their horns don't work.
