@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
