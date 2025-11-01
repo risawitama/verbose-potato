@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## I couldn't get a reservation at the library. They were completely booked.
