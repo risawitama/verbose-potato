@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What do prisoners use to call each other? Cell phones.
