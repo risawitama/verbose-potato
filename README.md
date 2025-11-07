@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why did the tomato blush? Because it saw the salad dressing.
