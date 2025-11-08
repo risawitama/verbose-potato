@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why was it called the dark ages? Because of all the knights. 
