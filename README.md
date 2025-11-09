@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Never take advice from electrons. They are always negative.
