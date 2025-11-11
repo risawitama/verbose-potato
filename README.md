@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
