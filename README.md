@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
