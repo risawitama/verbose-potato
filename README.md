@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What did the beaver say to the tree? It's been nice gnawing you.
