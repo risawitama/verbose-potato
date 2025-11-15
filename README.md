@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why did the chicken get a penalty? For fowl play.
