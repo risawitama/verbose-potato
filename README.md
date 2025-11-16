@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
