@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
