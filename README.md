@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What did the ocean say to the shore? Nothing, it just waved.
