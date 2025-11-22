@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Shout out to my grandma, that's the only way she can hear.
