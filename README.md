@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why did the melons plan a big wedding? Because they cantaloupe!
