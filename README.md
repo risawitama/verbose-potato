@@ -1,1 +1,3 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
