@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
