@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Never take advice from electrons. They are always negative.
