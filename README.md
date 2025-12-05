@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## I used to hate facial hair, but then it grew on me.
