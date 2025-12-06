@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What did the beaver say to the tree? It's been nice gnawing you.
