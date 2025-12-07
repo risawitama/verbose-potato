@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
