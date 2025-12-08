@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
