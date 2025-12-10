@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
