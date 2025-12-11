@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
