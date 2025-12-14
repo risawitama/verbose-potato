@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## I used to work in a shoe recycling shop. It was sole destroying.
