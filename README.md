@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
