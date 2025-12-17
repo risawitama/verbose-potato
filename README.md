@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
