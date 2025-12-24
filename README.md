@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
