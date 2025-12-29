@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Why can't eggs have love? They will break up too soon.
