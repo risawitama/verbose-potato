@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
