@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
