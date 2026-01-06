@@ -1,1 +1,1 @@
-## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
