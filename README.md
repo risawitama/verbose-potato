@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
