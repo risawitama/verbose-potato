@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What do you call a droid that takes the long way around? R2 detour.
