@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Without geometry life is pointless.
