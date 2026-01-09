@@ -1,1 +1,2 @@
-## What kind of magic do cows believe in? MOODOO.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
