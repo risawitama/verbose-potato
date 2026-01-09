@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What kind of magic do cows believe in? MOODOO.
