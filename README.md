@@ -1,2 +1,2 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What is the best way to carve?
+## Whittle by whittle.
