@@ -1,1 +1,3 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
