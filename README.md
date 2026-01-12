@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Why did the coffee file a police report? It got mugged.
