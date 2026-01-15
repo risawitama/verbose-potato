@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call someone with no nose? Nobody knows.
