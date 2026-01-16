@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
