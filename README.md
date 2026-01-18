@@ -1,1 +1,3 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
