@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
