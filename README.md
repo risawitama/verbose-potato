@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## I've got a joke about vegetables for you... but it's a bit corny.
