@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## When does a joke become a dad joke? When it becomes apparent.
