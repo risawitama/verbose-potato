@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
