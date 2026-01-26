@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
