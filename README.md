@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
