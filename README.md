@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Why didn’t the skeleton cross the road? Because he had no guts.
