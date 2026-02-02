@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
