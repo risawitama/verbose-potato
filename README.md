@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## How do you steal a coat? You jacket.
