@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
