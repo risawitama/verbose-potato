@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
