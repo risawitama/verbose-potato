@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
