@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
