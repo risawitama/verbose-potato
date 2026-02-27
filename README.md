@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## To the guy who invented zero... thanks for nothing.
