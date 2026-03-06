@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
