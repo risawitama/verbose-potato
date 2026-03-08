@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What's orange and sounds like a parrot? A Carrot.
