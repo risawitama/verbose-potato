@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
