@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
