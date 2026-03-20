@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why are ghosts bad liars? Because you can see right through them!
