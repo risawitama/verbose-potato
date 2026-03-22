@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Mountains aren't just funny, they are hill areas
