@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## What do you call your friend who stands in a hole? Phil.
