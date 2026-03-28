@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I have kleptomania, but when it gets bad, I take something for it.
