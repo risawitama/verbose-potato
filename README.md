@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
