@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## What creature is smarter than a talking parrot? A spelling bee.
