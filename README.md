@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
