@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
