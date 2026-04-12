@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
