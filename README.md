@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What do you call a bear with no teeth? A gummy bear!
