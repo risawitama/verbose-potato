@@ -1,1 +1,1 @@
-## Did you know that protons have mass? I didn't even know they were catholic.
+## What's a ninja's favorite type of shoes? Sneakers!
