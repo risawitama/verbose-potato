@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## I knew a guy who collected candy canes, they were all in mint condition
