@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
