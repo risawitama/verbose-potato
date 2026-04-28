@@ -1,1 +1,2 @@
-## What do you call a criminal going down the stairs? Condescending
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
