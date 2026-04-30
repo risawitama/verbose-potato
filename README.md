@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
