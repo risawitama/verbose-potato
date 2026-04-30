@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
