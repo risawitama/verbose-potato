@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
