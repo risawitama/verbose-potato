@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What do you call two guys hanging out by your window? Kurt & Rod.
