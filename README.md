@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## “My Dog has no nose.” “How does he smell?” “Awful”
