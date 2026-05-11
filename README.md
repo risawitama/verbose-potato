@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
