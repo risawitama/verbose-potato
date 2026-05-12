@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
