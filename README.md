@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What did one snowman say to the other snow man? Do you smell carrot?
