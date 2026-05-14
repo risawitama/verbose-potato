@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
