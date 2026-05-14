@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Why did the kid throw the clock out the window? He wanted to see time fly!
