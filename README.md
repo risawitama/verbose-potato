@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## You can't trust a ladder. It will always let you down
