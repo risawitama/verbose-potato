@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
