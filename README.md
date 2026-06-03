@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
