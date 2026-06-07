@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why did the tomato blush? Because it saw the salad dressing.
