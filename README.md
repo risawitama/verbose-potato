@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why was the robot angry? Because someone kept pressing his buttons!
