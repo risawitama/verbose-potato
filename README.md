@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
