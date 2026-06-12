@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
