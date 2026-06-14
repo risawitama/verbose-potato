@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
