@@ -1,1 +1,2 @@
-## I used to think I was indecisive, but now I'm not sure.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
