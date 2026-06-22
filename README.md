@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## I’m on a whiskey diet. I’ve lost three days already.
