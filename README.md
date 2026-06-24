@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
