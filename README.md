@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
