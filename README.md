@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
