@@ -1,1 +1,3 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
