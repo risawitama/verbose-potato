@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why is the ocean always blue? Because the shore never waves back.
