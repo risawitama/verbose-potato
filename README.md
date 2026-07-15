@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## A termite walks into a bar and asks “Is the bar tender here?”
