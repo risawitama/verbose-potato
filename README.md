@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why did the kid throw the clock out the window? He wanted to see time fly!
