@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Why are skeletons so calm? Because nothing gets under their skin.
