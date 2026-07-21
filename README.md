@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why was the strawberry sad? Its parents were in a jam.
