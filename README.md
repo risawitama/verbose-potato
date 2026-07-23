@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## People are shocked to discover I have a police record but I love their greatest hits!
