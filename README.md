@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why do birds fly south for the winter? Because it's too far to walk.
