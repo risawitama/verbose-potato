@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
