@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
