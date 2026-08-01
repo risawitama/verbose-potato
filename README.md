@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## This furniture store keeps emailing me, all I wanted was one night stand!
