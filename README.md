@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
