@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## What do you call corn that joins the army? Kernel.
