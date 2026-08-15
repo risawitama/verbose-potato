@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Don't tell secrets in corn fields. Too many ears around.
