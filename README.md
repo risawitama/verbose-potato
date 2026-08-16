@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What's the best thing about elevator jokes? They work on so many levels.
