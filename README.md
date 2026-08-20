@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
