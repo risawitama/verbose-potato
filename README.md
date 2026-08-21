@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## How do you make holy water? You boil the hell out of it.
