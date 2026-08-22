@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why do bees have sticky hair? Because they use honey combs!
