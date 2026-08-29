@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
