@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## My boss told me to have a good day... so I went home.
