@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
