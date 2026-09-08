@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
