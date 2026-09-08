@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
