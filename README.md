@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
