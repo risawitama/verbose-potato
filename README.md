@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
