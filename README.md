@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
