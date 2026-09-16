@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why did the tree go to the dentist? It needed a root canal.
