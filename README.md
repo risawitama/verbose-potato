@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Don't tell secrets in corn fields. Too many ears around.
