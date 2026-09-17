@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Bad at golf? Join the club.
