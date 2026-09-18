@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## When do doctors get angry? When they run out of patients.
