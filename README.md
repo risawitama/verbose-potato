@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## When is a door not a door? When it's ajar.
