@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What do you call a cow on a trampoline? A milk shake!
