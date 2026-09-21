@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Why do cows not have toes? They lactose!
