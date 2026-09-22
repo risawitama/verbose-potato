@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
