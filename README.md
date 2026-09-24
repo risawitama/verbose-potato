@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
