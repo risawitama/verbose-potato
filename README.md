@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
