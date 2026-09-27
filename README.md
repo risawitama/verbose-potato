@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What did the beaver say to the tree? It's been nice gnawing you.
