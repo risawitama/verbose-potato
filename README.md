@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
