@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
