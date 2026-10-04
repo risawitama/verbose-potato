@@ -1,1 +1,3 @@
-## I don't trust stairs. They're always up to something.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
