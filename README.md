@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
