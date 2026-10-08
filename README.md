@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
