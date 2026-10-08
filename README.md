@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## Why do you never see elephants hiding in trees? Because they're so good at it.
