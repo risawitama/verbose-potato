@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Why is the ocean always blue? Because the shore never waves back.
