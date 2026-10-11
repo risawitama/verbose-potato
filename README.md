@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
