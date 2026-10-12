@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
