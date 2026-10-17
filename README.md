@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
