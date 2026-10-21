@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What's brown and sticky? A stick.
