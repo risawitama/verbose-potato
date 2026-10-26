@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do you get when you cross a snowman with a vampire? Frostbite.
