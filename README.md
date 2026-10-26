@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What kind of pants do ghosts wear? Boo jeans.
