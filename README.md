@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
