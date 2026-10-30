@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## How does the moon cut his hair? Eclipse it.
