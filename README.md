@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
