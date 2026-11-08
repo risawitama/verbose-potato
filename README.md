@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
