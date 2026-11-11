@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
