@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What did the digital clock say to the grandfather clock? Look, no hands!
