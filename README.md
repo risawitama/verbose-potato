@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
