@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
