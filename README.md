@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
