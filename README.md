@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
