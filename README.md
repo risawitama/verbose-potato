@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
