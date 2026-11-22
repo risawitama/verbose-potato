@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## How do you organize a space party? You planet.
