@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## What did one plate say to the other plate? Dinner is on me!
