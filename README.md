@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I have kleptomania, but when it gets bad, I take something for it.
